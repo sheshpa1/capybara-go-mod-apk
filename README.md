@@ -1,4 +1,4 @@
-# Capybara Go MOD APK Unlimited Money Latest Version (Free Shoping) Unduh Gratis
+# Capybara Go MOD APK Unlimited Money Latest Version (Free Shopping) Unduh Gratis
 
 ---
 
